@@ -1,2 +1,1 @@
-## 合成大奈奈
-奈子大小仅供参考
+LINK: https://goolloo.github.io/MergeSolskjaer/
